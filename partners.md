@@ -1,0 +1,5 @@
+- [General Catalyst](https://www.generalcatalyst.com/)
+- [468 Capital](https://468cap.com/)
+- [Interface Capital](https://interfacecap.com/)
+- [Hummingbird VC](https://www.hummingbird.vc/
+- [Heartcore Capital](https://www.heartcore.com/)

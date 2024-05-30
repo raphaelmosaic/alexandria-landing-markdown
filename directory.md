@@ -1,0 +1,17 @@
+Johannes Hagemann
+Ivan Yevenko
+Will Depue
+Brian Machado
+Isaak Freeman
+Rachel Schmargon
+Yash Rachamandi
+Aakarsh Bengani
+Kayla Leung
+Robert Lukoszko
+Alexander Koch
+Yaroslav Shipilov
+Sulaiman Ghori
+Nils Eller
+Dominik Scherm
+Levin Mutschler
+Raphael Volpert
